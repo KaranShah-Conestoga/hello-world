@@ -1,1 +1,1 @@
-# hello-world
+I have a deep passion for this field, and my ultimate goal is to become a highly competent web developer and full-stack developer. Particularly, website design plays a significant role in my goals. Additionally, I'm anxious to develop skills in creating customize CSS. I'm also very interested in starting my own personal photography website.
